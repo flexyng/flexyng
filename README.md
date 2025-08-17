@@ -47,6 +47,6 @@ Soy un **desarrollador de software** apasionado por crear aplicaciones eficiente
 
 ### 📫 **Conecta conmigo**:
 
-- **Discord**: Clasifed
+- **Discord**: clasifed_
 
 ¡Gracias por visitar mi perfil! 😄
